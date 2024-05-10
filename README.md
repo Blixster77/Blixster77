@@ -1,7 +1,7 @@
 - Hiya!
 - I'm Blixster, Blix for short
 - I am still getting the hang of code.
-- No, I will not shut up about how good Proton is.
+- I have 2 little dogs who I love more than the world!
 - If you wish to contact me for whatever reason, my Email is blixster@proton.me
 
 <!---
